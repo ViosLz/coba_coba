@@ -1,2 +1,3 @@
 # coba_coba
-mantap slurrrrr
+mantap slur
+halo saya enea
